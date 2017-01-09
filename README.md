@@ -1,5 +1,4 @@
-李秦琪主页
-=====
-
-李秦琪  
+Li, Qinqi
+=========
+  
 [http://liqinqi.com](http://liqinqi.com)  
